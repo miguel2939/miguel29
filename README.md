@@ -12,4 +12,4 @@ ruotolo.antonio@escola.pr.gov.br
 
 @miguellopes2939
 
-![](https://media1.tenor.com/m/upDd42wUOE0AAAAd/welcome.gif)
+![]![image](https://github.com/user-attachments/assets/a0ffcf8b-52f7-49b3-b8df-091a37b71a12)
